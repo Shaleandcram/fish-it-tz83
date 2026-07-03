@@ -1,4 +1,4 @@
-#  
+#  Experience fish it like never before with vip Script for fish it, the #1 Script. Includes unlimited stamina and auto-heal for unbeatable performance.
 
 
 
